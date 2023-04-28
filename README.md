@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ThatCurryMuncher I am a 13yr student In year 8.
+- 🎮 I’m interested in gaming 
+- 📖 I’m currently in school improving on my subjects 
+- 📫 You can reach me by contacting the email - yassolan79@gmail.com
